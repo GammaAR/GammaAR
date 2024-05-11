@@ -10,7 +10,7 @@
 - ❓ Ask me about anything related to Astronomy  
   
 
-- ⚡ Fun fact: I can't make a joke😭  
+- ⚡ Fun fact: I can't make jokes😭  
   
 
 - 🔍 I'm currently looking for a new job for my first job!!  
