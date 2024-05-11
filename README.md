@@ -4,7 +4,7 @@
 - 🌏 Fresh graduated from Astronomy major  
   
 
-- 🌱 I’m currently learning Data Analyst on TripleTen Indonesia (https://tripleten.com)  
+- 🌱 I’m currently learning Data Analyst on TripleTen Indonesia (https://tripleten.com) and also Chinese Language
   
 
 - ❓ Ask me about anything related to Astronomy  
