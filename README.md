@@ -4,16 +4,14 @@
 - 🌏 Fresh graduated from Astronomy major  
   
 
-- 🌱 I’m currently learning Data Analyst on TripleTen Indonesia (https://tripleten.com) and also Chinese Language
+- 🌱 I’m currently learning Magister Management (to expand my overall knowledge)
   
 
 - ❓ Ask me about anything related to Astronomy  
-  
 
-- ⚡ Fun fact: I can't make jokes😭  
-  
 
-- 🔍 I'm currently looking for a new job for my first job!!  
+- Welcome!!!
+  
   
 
 <br/>  
